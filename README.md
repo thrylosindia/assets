@@ -16,4 +16,4 @@
 <img width="505" height="646" alt="rishika" src="https://github.com/user-attachments/assets/f72352fa-dd70-487c-903b-f47c5f1a59bc" />
 <img width="800" height="800" alt="rishika" src="https://github.com/user-attachments/assets/e30668bc-be46-4517-afe2-be2e2ffcd81d" />
 <img width="555" height="603" alt="Screenshot 2025-12-16 at 11 29 07 AM" src="https://github.com/user-attachments/assets/a3a2a153-7453-4dea-bb4a-ad17a04f19ed" />
-<img width="1200" height="630" alt="thrylosindia" src="https://github.com/user-attachments/assets/c0d6c15c-5e89-4bc5-a8a8-108cb4833196" />
+<img alt="thrylosindia" src="https://github.com/user-attachments/assets/c0d6c15c-5e89-4bc5-a8a8-108cb4833196" />
