@@ -19,3 +19,6 @@
 <img alt="thrylosindia" src="https://github.com/user-attachments/assets/c0d6c15c-5e89-4bc5-a8a8-108cb4833196" />
 <img width="619" height="542" alt="Screenshot 2025-12-16 at 7 40 53 PM" src="https://github.com/user-attachments/assets/57396f8b-bfad-4647-b3d4-a8246233aa08" />
 ![cod_game_poster-v7tX50kk](https://github.com/user-attachments/assets/8972a75f-b673-4d22-8965-12044f3ba9c1)
+![WhatsApp Image 2025-12-30 at 14 50 58](https://github.com/user-attachments/assets/daa88650-7f19-4fc7-aae8-dceba512a559)
+![WhatsApp Image 2025-12-30 at 12 38 41](https://github.com/user-attachments/assets/a49db55c-0bd2-4b98-9b15-55d1bb1f0a6f)
+![WhatsApp Image 2025-12-30 at 12 18 30](https://github.com/user-attachments/assets/636abaf2-a7b2-4842-aed0-df1e98c1789c)
