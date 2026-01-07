@@ -19,9 +19,12 @@
 <img alt="thrylosindia" src="https://github.com/user-attachments/assets/c0d6c15c-5e89-4bc5-a8a8-108cb4833196" />
 <img width="619" height="542" alt="Screenshot 2025-12-16 at 7 40 53 PM" src="https://github.com/user-attachments/assets/57396f8b-bfad-4647-b3d4-a8246233aa08" />
 ![cod_game_poster-v7tX50kk](https://github.com/user-attachments/assets/8972a75f-b673-4d22-8965-12044f3ba9c1)
+![WhatsApp Image 2026-01-07 at 10 51 50](https://github.com/user-attachments/assets/22ee3c64-e926-4ef0-9445-febdff53fe68)
+
 ![WhatsApp Image 2025-12-30 at 14 50 58](https://github.com/user-attachments/assets/daa88650-7f19-4fc7-aae8-dceba512a559)
 ![WhatsApp Image 2025-12-30 at 12 38 41](https://github.com/user-attachments/assets/a49db55c-0bd2-4b98-9b15-55d1bb1f0a6f)
 ![WhatsApp Image 2025-12-30 at 12 18 30](https://github.com/user-attachments/assets/636abaf2-a7b2-4842-aed0-df1e98c1789c)
 ![WhatsApp Image 2025-12-30 at 15 18 55](https://github.com/user-attachments/assets/9c71e01b-e0c4-406f-b7e7-135ffb0bd561)
 <img width="1024" height="1536" alt="mrinal" src="https://github.com/user-attachments/assets/b4d849e0-e11a-41a3-a38c-795c5091dbf6" />
 ![WhatsApp Image 2026-01-06 at 21 11 37](https://github.com/user-attachments/assets/c9f9addd-517a-432a-8a31-c2650cc4390b)
+<img width="469" height="536" alt="Screenshot 2026-01-07 at 10 59 25 AM" src="https://github.com/user-attachments/assets/32a2ec13-f351-4a60-979d-c93bb1778d52" />
