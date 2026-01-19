@@ -32,6 +32,5 @@
 <img width="1430" height="650" alt="Screenshot 2026-01-11 at 7 38 56 PM" src="https://github.com/user-attachments/assets/161486ef-3058-46fc-9ff2-d067ce256c2e" />
 ![mpsign](https://github.com/user-attachments/assets/ce2c27ec-e368-4909-b9a4-47aa9f7100e7)
 
-![mpsign](https://githu![india](https://github.com/user-attachments/assets/5cf051a5-1c23-4a84-8121-2638ec35ca38)
 ![india](https://github.com/user-attachments/assets/9a82c8ee-9213-4e60-8f0b-81dd18aa56b8)
 <img width="1024" height="1024" alt="thrylosbg" src="https://github.com/user-attachments/assets/af7e228f-348b-43c1-81ca-445a0c5ac0fd" />
