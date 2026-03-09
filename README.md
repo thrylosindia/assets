@@ -34,3 +34,8 @@
 
 ![india](https://github.com/user-attachments/assets/9a82c8ee-9213-4e60-8f0b-81dd18aa56b8)
 <img width="1024" height="1024" alt="thrylosbg" src="https://github.com/user-attachments/assets/af7e228f-348b-43c1-81ca-445a0c5ac0fd" />
+
+<img width="710" height="270" alt="Screenshot_2026-03-09_at_7 13 15_PM-removebg-preview" src="https://github.com/user-attachments/assets/c9836aca-ac2e-40c1-9598-3e98604b1cac" />
+
+<img width="991" height="252" alt="Screenshot_2026-03-09_at_7 13 03_PM-removebg-preview" src="https://github.com/user-attachments/assets/3571dc09-2333-4798-9106-92d8a49bad9c" />
+
