@@ -39,3 +39,4 @@
 
 <img width="991" height="252" alt="Screenshot_2026-03-09_at_7 13 03_PM-removebg-preview" src="https://github.com/user-attachments/assets/3571dc09-2333-4798-9106-92d8a49bad9c" />
 
+<img width="822" height="176" alt="thrylos" src="https://github.com/user-attachments/assets/f4af42e8-1c56-4582-9c08-007f0f012e48" />
