@@ -40,3 +40,5 @@
 <img width="991" height="252" alt="Screenshot_2026-03-09_at_7 13 03_PM-removebg-preview" src="https://github.com/user-attachments/assets/3571dc09-2333-4798-9106-92d8a49bad9c" />
 
 <img width="822" height="176" alt="thrylos" src="https://github.com/user-attachments/assets/f4af42e8-1c56-4582-9c08-007f0f012e48" />
+
+<img width="1254" height="1254" alt="ChatGPT Image Apr 27, 2026 at 02_02_37 AM" src="https://github.com/user-attachments/assets/880513b6-a44b-4b70-9d7d-dcdad2e304c1" />
