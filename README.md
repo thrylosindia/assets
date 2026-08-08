@@ -50,3 +50,6 @@
 
 <img width="1536" height="1024" alt="ChatGPT Image Aug 8, 2026 at 03_29_49 PM" src="https://github.com/user-attachments/assets/a708dd6e-8bba-40a6-be7c-1b000be54715" />
 
+<img width="1222" height="1200" alt="thrylos-removed-bg" src="https://github.com/user-attachments/assets/e6068bdf-4ff1-4a4d-8804-6d5888e3cea7" />
+<img width="2484" height="682" alt="thrylosindia-removed-bg" src="https://github.com/user-attachments/assets/5f02da81-f761-439b-bc98-b2dc66c5c3ff" />
+<img width="1536" height="1024" alt="ChatGPT Image Aug 8, 2026 at 03_29_49 PM" src="https://github.com/user-attachments/assets/81213f36-f04e-49e1-bb2a-a590103afc0e" />
