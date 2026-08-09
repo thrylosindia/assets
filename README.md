@@ -60,3 +60,6 @@
 
 
 <img width="637" height="662" alt="WhatsApp Image 2026-08-09 at 21 09 50" src="https://github.com/user-attachments/assets/cf6be0eb-014e-4303-8531-5acb92d3c56c" />
+
+<img width="1254" height="1254" alt="WhatsApp Image 2026-08-09 at 21 14 28" src="https://github.com/user-attachments/assets/ad8e04ff-cbd3-46f4-af88-499338542eec" />
+
